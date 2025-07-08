@@ -1,6 +1,6 @@
 <h2>omofun官方网站入口在哪里，官方登录地址怎么找</h2>
 <p>OmoFun动漫是一个专为动漫爱好者打造的综合性在线平台，提供海量的动漫资源和丰富的功能。该网站汇聚了全球范围内的热门动漫作品，包括日本新番、经典怀旧动画、欧美动画以及国漫等多种类型，满足不同用户的多样化需求。OmoFun动漫以高清画质播放为特色，支持多种清晰度选择，让用户享受影院级的观影体验。此外，网站还提供个性化推荐功能，根据用户的观看历史和偏好智能推荐相关作品，提升用户的追番体验。</p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/1587.html" target="_blank"><strong>Omofun动漫最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://omofun.wwwnav.com/" target="_blank"><strong>Omofun动漫最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h4><strong>功能特点</strong></h4>
